@@ -1,1 +1,1 @@
-![Marx boss fight](assets/Marx.gif)
+![true form](assets/Marx.gif)
