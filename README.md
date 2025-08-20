@@ -76,6 +76,4 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
 **lolol listen to this wwoooOoow**
 
-## 🎧 Now Playing on Spotify
-
 [![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interlude=true)](https://open.spotify.com/user/31chxnhknznn2qcviny75njwos2i)
