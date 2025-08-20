@@ -76,4 +76,4 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
 **lolol listen to this wwoooOoow**
 
-[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interlude=true)](https://open.spotify.com/user/31chxnhknznn2qcviny75njwos2i)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=4d006e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&redirect=true)
