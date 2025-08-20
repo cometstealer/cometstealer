@@ -76,16 +76,6 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
 ![thornsandroses](assets/roses.png)
 
-**lolol listen to this wwoooOoow**
-
-+1
--1
-Lines changed: 1 addition & 1 deletion
-
-
-Original file line number	Diff line number	Diff line change
-@@ -78,4 +78,4 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
-
-**lolol listen to this wwoooOoow**
+**listen to this ya'll wooow**
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=4d006e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&redirect=true)
