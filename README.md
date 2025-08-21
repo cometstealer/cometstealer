@@ -76,6 +76,14 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
 ![thornsandroses](assets/roses.png)
 
+<div align="center">
+
 **listen to this ya'll wooow**
+</div>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=240033&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&redirect=true)
+
+<div align="center">
+
+ *psst if you're wi or teki, ily ♡*
+</div>
