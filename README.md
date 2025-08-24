@@ -85,7 +85,7 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 **listen to this ya'll wooow**
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=240033&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=46006b&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
  *psst if you're wi or teki, ily ♡*
