@@ -2,7 +2,7 @@
 
 
 ![true form](assets/Marx.gif)
-/<div>
+<div>
 
 <div align="center">
 
