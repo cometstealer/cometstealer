@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr)
+![Wishes counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr)
 
 
 <div align="center">
