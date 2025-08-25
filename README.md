@@ -1,11 +1,5 @@
 <div align="center">
-
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr&color=blueviolet&label=STOLEN+WISHES&abbreviated=true&style=flat-square)
-<div>
-
-<div align="center">
-
-
+ 
 ![true form](assets/Marx.gif)
 <div>
 
@@ -95,3 +89,8 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
  *psst if you're wi or teki, ily ♡*
 </div>
+
+<div align="center">
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr&color=blueviolet&label=STOLEN+WISHES&abbreviated=true&style=flat-square)
+<div>
