@@ -1,5 +1,7 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr&color=blueviolet&label=STOLEN+WISHES&abbreviated=true)
+<div align="center">
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr&color=blueviolet&label=STOLEN+WISHES&abbreviated=true&style=flat-square)
+<div>
 
 <div align="center">
 
