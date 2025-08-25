@@ -1,4 +1,5 @@
-![Profile view counter on GitHub](https://github.com/mrxxjstr/mrxxjstr)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mrxxjstr)
+
 
 <div align="center">
 
