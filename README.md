@@ -5,7 +5,7 @@
 
 <div align="center">
 
-**HEY HEY HEYYY** the name's marxx. masc pronouns !! i can be witnessed around deltarune or gravity falls area. i uh speak both spanish and english. i tend to be very hyperactive and intense around people close to me, don't get scared by that i ~~do~~ don't bite trust. please int first i fear speaking until someone talks to me. if i followed you its bcs you're so cool and i want to eat the pixels off of your skin.
+**HEY HEY HEYYY** the name's marxx. masc pronouns !! i can be witnessed around deltarune or gravity falls area. i may be very hyperactive and intense around people, don't get scared by that i ~~do~~ don't bite trust. please int first i fear speaking until someone talks to me. if i followed you its bcs you're so cool and i want to eat the pixels off of your skin.
 
 interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRANGLE YOU IF YOU DON'T THIS IS NOT A JOKE.~~ ahem. no but fr i love meeting cool people. c+h freely unless i'm with friends / not stated in my name. oh also *roleplays dni* ← more about dni list on strawpage !!
 </div>
