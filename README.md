@@ -87,7 +87,6 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31chxnhknznn2qcviny75njwos2i&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=46006b&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
- *psst if you're wi or teki, ily ♡*
 </div>
 
 <div align="center">
