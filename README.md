@@ -58,6 +58,8 @@ interactions are more than welcome !! ~~ACTUALLY TALK TO ME PLEASE IM GONNA STRA
 
  ⟡ odetari
 
+ ⟡ gorillaz
+
  ⟡ trust me ik a lot just ask me
 
 
