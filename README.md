@@ -10,13 +10,13 @@
 
 <div align="center">
 
-### Heading 3 HEYA, MARXX HERE
+## HEYA, MARXX HERE
 
 average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee.
 
-lolol
+current main interests: kirby, gorillaz, deltarune, steven universe, gravity falls. ask or see sp for more!
 
-lolol
+roleplay dni, im AWFUL at roleplaying in ponytown, just don't.
 
  </div>
 
