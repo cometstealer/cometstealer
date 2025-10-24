@@ -5,7 +5,7 @@
 
 <div align="center">
 
-![rainybow](assets/dabhpmo-01de6a45-199f-4e1b-bc42-81281d011861.gif)
+![rainybow](assets/20251024_183226.gif)
 </div>
 
 <div align="center">
@@ -16,7 +16,7 @@
 
 <div align="center">
 
-![rainybow](assets/dabhpmo-01de6a45-199f-4e1b-bc42-81281d011861.gif)
+![rainybow](assets/20251024_183226.gif)
 
 </div>
 
