@@ -10,7 +10,13 @@
 
 <div align="center">
 
-# HEY HEY HEY, MARXX HERE !!!
+# HEYA, MARXX HERE
+
+average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee.
+
+lolol
+
+lolol
 
  </div>
 
