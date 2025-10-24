@@ -1,6 +1,6 @@
 <div align="center">
  
-![nova](assets.tumblr_cc9c5d979fa945d723891db5a77b91e1_93fd3ce5_1280.gif.webp)
+![nova](assets/tumblr_cc9c5d979fa945d723891db5a77b91e1_93fd3ce5_1280.gif.webp)
 <div>
 
 <div align="center">
