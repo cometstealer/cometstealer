@@ -20,7 +20,7 @@
 **current main interests:** kirby, gorillaz, deltarune, steven universe, gravity falls. ask or see sp for more!
 
 
-**ROLEPLAY DNI**, im AWFUL at roleplaying in ponytown, just don't.
+**ROLEPLAY DNI**, im TERRIBLE at roleplaying in ponytown, just don't.
 
  </div>
 
