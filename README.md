@@ -14,7 +14,7 @@
 
 ## HEYA, MARXX HERE
 
-**he, him.** average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee. find me at kirby or utdr area !
+**he, him.** marx fan, kin and apologist. ints are too encouraged! c+h is also encouraged, heeheehee. find me at kirby or utdr area !
 
 
 **current main interests:** kirby, gorillaz, deltarune, steven universe. ask or see sp for more!
