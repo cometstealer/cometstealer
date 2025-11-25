@@ -14,7 +14,7 @@
 
 ## HEYA, MARXX HERE
 
-**he, him.** average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee. find me at kirby / ~~gravity falls~~ euh... deltarune areas !
+**he, him.** average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee. find me at kirby / utdr areas !
 
 
 **current main interests:** kirby, gorillaz, deltarune, steven universe. ask or see sp for more!
