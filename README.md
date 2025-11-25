@@ -14,10 +14,10 @@
 
 ## HEYA, MARXX HERE
 
-**he, him.** average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee.
+**he, him.** average marx fan? i don't think so. ints are too encouraged! c+h is also encouraged, heeheehee. find me at kirby / ~~gravity falls~~ euh... deltarune areas !
 
 
-**current main interests:** kirby, gorillaz, deltarune, steven universe, gravity falls. ask or see sp for more!
+**current main interests:** kirby, gorillaz, deltarune, steven universe. ask or see sp for more!
 
 
 **ROLEPLAY DNI**, im TERRIBLE at roleplaying in ponytown, just don't.
